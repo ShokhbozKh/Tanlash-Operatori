@@ -1,0 +1,1 @@
+# Tanlash Operatori
